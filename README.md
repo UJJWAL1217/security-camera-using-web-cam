@@ -5,5 +5,5 @@ This program can be applied in real world at following places :
 2. In police station to examine the movement of the criminal.
 3. In zoos to examine  the movement of wild animals , reptiles etc.
 4. At such places where the entry of anyone is prohibited . 
-5. In jwellary shops to secure the most expensive and precious elemennt such as dimonnds and golds .
+5. In jewellery shops to secure the most expensive and precious elemennt such as diamonds and golds .
 many more such application can be their for this camera where the delicate and small small movements have  to be observed ..
